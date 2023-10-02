@@ -1,6 +1,6 @@
-### Olá, bem vindo ao meu perfil! 🌙
+### Olá, bem vindo ao meu perfil!
 
-Aluno Eloisa Biscola, ou Mike :)
+Aluno Eloisa Biscola da Silva ou Bingolinha 
 
 - Estudante do 1° ano do Ensino Médio Integral
 
@@ -8,4 +8,4 @@ Aluno Eloisa Biscola, ou Mike :)
 - eloisa.biscola.silva@escola.pr.gov.br
 - @zm.mike
 
-![](https://media.giphy.com/media/obBHEB4pe0VJLMDACz/giphy.gif)
+![](https://media.giphy.com/media/Z8YiT981jLnKfnY2dV/giphy.gif)
