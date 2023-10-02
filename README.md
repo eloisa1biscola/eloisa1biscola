@@ -2,7 +2,7 @@
 
 Aluno Eloisa Biscola, ou Mike :)
 
-- Estudante do 1° ano do Ensino Médio
+- Estudante do 1° ano do Ensino Médio Integral
 
 ### Para entrar em contato comigo
 - eloisa.biscola.silva@escola.pr.gov.br
