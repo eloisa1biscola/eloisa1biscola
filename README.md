@@ -8,4 +8,4 @@ Aluno Eloisa Biscola da Silva ou Bingolinha
 - eloisa.biscola.silva@escola.pr.gov.br
 - @zm.mike
 
-![](blob:https://web.whatsapp.com/ee494a0d-cd90-4bd4-8de8-1f17e1456bc5)
+![](https://media.giphy.com/media/Z8YiT981jLnKfnY2dV/giphy.gif)
